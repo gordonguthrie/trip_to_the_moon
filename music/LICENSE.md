@@ -1,0 +1,1 @@
+This music is copyright © Gordon Guthrie 2022 <gordon@hypernumbers.com>
